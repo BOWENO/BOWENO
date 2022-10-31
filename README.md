@@ -2,8 +2,8 @@
 - I just finished my college career this June.
 - I am a rookie in this field,my majority is IOT,but i am not good at the hardware part.
 - And obviously I come from CHINA,I am eager to communicate with u guys and cannot wait to learning more not only about the code.
-- 👀 I’m interested in MUSIC,MOVIE,TOURIST...I love INTERSTELLAR so much!!!
-- OMG,I love NOLAN so much because he bring that maseterpiece to this word.I watch the film year by year.
+- 👀 I’m interested in MUSIC,MOVIE,TRAVEL...I love INTERSTELLAR so much!!!
+- OMG,I love NOLAN so much because he bring that maseterpiece to this world.I watched the film year by year.
 - I am upset because I cannot watch the IMAX version in the cinema.
 - And,OMGGGGGGGGGGGGGGGGG,HANS ZIMMER!!!!!!HOW WONDERFUL THE MUSIC HE AND HIS TEAM CREATE!!!
 - When I get into the series of bad emotion like anxiety,his music always calms my mind.
@@ -21,7 +21,6 @@
 
 - 📫 How to reach me 
 - My email: bowendu@foxmail.com
-- My facebook:https://www.facebook.com/profile.php?id=100087243000234
 <!---
 BOWENO/BOWENO is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
